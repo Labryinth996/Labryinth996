@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning to code and store things more efficienly. Efficiency is my passion (though I lack it)
 - 🌱 I’m currently learning all the basics because I am an amateur
 - 📫 How to reach me: You can reach me on discord @labryinth996
-- 😄 Pronouns: He/him but I am fine with they/them
+- 😄 Pronouns: He/him
 - ⚡ Fun fact: I am dumb and I LOVE DOGS (a lot lot lot)
 
 <!---
